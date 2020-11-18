@@ -8,7 +8,7 @@
  
 * :book: I'm currently pursuing *B.Tech*  final year from ***Vel Tech*** in *Chennai*.
 
-* :full_moon_with_face : I'm very interested in learning new things.
+* :full_moon_with_face: I'm very interested in learning new things.
 
 *  :eyes: I'm looking for an opportunity to explore myself.
 
